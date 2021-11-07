@@ -1,0 +1,1 @@
+The Counties of the Kingdom of Hungary as they were 1886-1918. Based on https://commons.wikimedia.org/wiki/File:Kingdom_of_Hungary_counties.svg
